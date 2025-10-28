@@ -46,4 +46,4 @@ where fans could interact — a meta experiment that blurred the line between fi
 ---
 
 **In short:** *All About Lily Chou-Chou* is less a movie and more an emotional experience —  
-fragile, painful, and beautiful in a way that refuses explanation.
+fragile, painful, and beautiful in a way that refuses explanation. <3
